@@ -1,0 +1,1 @@
+# CopiadeGo0gle
